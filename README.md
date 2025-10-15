@@ -1,0 +1,1 @@
+# Perfil-de-Compra-V2.ATUAL
